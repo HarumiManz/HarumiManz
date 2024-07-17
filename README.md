@@ -8,7 +8,7 @@
 - 📫 También a mi correo harumiapple@hotmail.com
 - ⚡ Me encantan los rompecabezas y ver pelis 
 
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](pp.asana.com/0/1207687530555060/1207687530555075)
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/harumi-cristal-manzano-ya%C3%B1ez-81225b200/)
 
 ---
 
